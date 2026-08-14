@@ -1,4 +1,7 @@
-## Hi there 👋
+## 𝓐𝓭𝓪𝓶/𝓐𝓭𝓼
+## ₕₑ/ₕᵢₘ
+<img width="800" height="30" alt="black" src="https://github.com/user-attachments/assets/5e60da25-11f5-46fe-89e5-07acfa040f9d" />
+
 
 <!--
 **shotgunsinners/shotgunsinners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
