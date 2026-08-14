@@ -1,7 +1,7 @@
 <img width="100%" height="16" alt="piano" src="https://github.com/user-attachments/assets/b0f01dcb-ac0d-4921-8235-095c0663bda9" />
-𝔉𝔬𝔯 𝔪𝔬𝔯𝔢 𝔡𝔢𝔱𝔞𝔦𝔩𝔢𝔡 𝔦𝔫𝔣𝔬𝔯𝔪𝔞𝔱𝔦𝔬𝔫 𝔠𝔥𝔢𝔠𝔨 𝔪𝔶 [𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢](https://th3entry86.straw.page/).
+.
 
-More sites can be found on my [guns](YOUR_GUNS_LINK).
+More sites can be found on my [guns](https://guns.lol/entry_87)).
 <img width="100%" height="50" alt="9fa2a9c9" src="https://github.com/user-attachments/assets/d11ae5ef-5534-438c-894a-f41a3afbda01" />
 
 
