@@ -2,6 +2,15 @@
 ## ₕₑ/ₕᵢₘ
 <img width="100%" height="30" alt="black" src="https://github.com/user-attachments/assets/5e60da25-11f5-46fe-89e5-07acfa040f9d" />
 
+DNI
+-> If you can't respect boundaries, or stop when told to do so. No means no stop it you freak.
+-> I you romanticize or glorify self harm, abuse, suicide,mental illness, trauma etc. you are ICKY.
+-> If you are racist, homophobic, transphobic, Islamophobic ,sexist,proshipper, incest shippers, or support any of these...
+-> I you use slurs or dark humor you have no rights to or cannot reclaim.
+-> Generally just don't be an asshole and we'll be okay.
+<img width="100%" height="24" alt="oil2" src="https://github.com/user-attachments/assets/d40bd851-8f5b-47ea-aef5-8167253323d9" />
+
+
 
 <!--
 **shotgunsinners/shotgunsinners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
