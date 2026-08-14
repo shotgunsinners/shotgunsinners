@@ -1,3 +1,5 @@
+<img width="100%" height="16" alt="piano" src="https://github.com/user-attachments/assets/b0f01dcb-ac0d-4921-8235-095c0663bda9" />
+
 ## 𝓐𝓭𝓪𝓶/𝓐𝓭𝓼
 ## ₕₑ/ₕᵢₘ
 <img width="100%" height="30" alt="black" src="https://github.com/user-attachments/assets/5e60da25-11f5-46fe-89e5-07acfa040f9d" />
