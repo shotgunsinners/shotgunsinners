@@ -4,9 +4,13 @@
 
 DNI
 -> If you can't respect boundaries, or stop when told to do so. No means no stop it you freak.
+
 -> I you romanticize or glorify self harm, abuse, suicide,mental illness, trauma etc. you are ICKY.
+
 -> If you are racist, homophobic, transphobic, Islamophobic ,sexist,proshipper, incest shippers, or support any of these...
+
 -> I you use slurs or dark humor you have no rights to or cannot reclaim.
+
 -> Generally just don't be an asshole and we'll be okay.
 <img width="100%" height="50" alt="oil2" src="https://github.com/user-attachments/assets/d40bd851-8f5b-47ea-aef5-8167253323d9" />
 <p align="center">
