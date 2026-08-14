@@ -10,8 +10,9 @@ DNI
 -> Generally just don't be an asshole and we'll be okay.
 <img width="100%" height="50" alt="oil2" src="https://github.com/user-attachments/assets/d40bd851-8f5b-47ea-aef5-8167253323d9" />
 <p align="center">
-  ![Profile Views](https://komarev.com/ghpvc/?username=shotgunsinners&label=PROFILE+VIEWS&style=flat-square)
-
+  <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=shotgunsinners&label=VISITORS&style=for-the-badge">
+</p>
 
 <!--
 **shotgunsinners/shotgunsinners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
