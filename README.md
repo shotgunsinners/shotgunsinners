@@ -1,4 +1,4 @@
-<img width="100%" height="16" alt="piano" src="https://github.com/user-attachments/assets/b0f01dcb-ac0d-4921-8235-095c0663bda9" />
+<img width="2048" height="331" alt="tumblr_c59a32a59766a2c195e3a38325f94ee3_1503e201_2048" src="https://github.com/user-attachments/assets/20cca7c2-4ad2-4a0c-b423-adc59ff8eedb" />
 
 For more detailed information, check my [Strawpage](https://th3entry86.straw.page/).
 
