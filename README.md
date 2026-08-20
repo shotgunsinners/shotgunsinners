@@ -42,7 +42,8 @@
 * $\color{#FFD9D9}{\text{\textbf{Do\ not\ copy\ or\ heavily\ inspire\ your\ skins\ from\ mine.}}}$
 * $\color{#FFF0F0}{\text{Minor\ inspiration\ is\ perfectly\ fine,\ but\ please\ do\ not\ fully\ clone\ my\ skins!}}$
 
-# $\color{#5A0000}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#A10000}{\text{──\ ❖\ ───}}$
+# <p align="center">$\color{#A02020}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#5A0000}{\text{──\ ❖\ ───}}$</p>
+
 
 ### $\color{#5A0000}{\text{W}}\color{#6E0000}{\text{h}}\color{#830000}{\text{e}}\color{#970000}{\text{r}}\color{#AC0000}{\text{e}}\color{#C10000}{\text{\ }}\color{#D50000}{\text{t}}\color{#EA0000}{\text{o}}\color{#FF0000}{\text{\ }}\color{#FF3333}{\text{F}}\color{#FF6666}{\text{i}}\color{#FF9999}{\text{n}}\color{#FFCCCC}{\text{d}}\color{#FFE600}{\text{\ }}\color{#FFFFFF}{\text{M}}\color{#FFFFFF}{\text{e}}$
 
