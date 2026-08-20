@@ -25,8 +25,8 @@ DNI
 <img width="100%" height="50" alt="oil2" src="https://github.com/user-attachments/assets/d40bd851-8f5b-47ea-aef5-8167253323d9" />
 <p align="center">
   <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=shotgunsinners&label=VISITORS&style=for-the-badge">
-</p>
+ <img width="2048" height="331" alt="tumblr_5cf01ac9ad304d3af8fd068053c4cb47_6bad1b10_2048" src="https://github.com/user-attachments/assets/949571ad-155c-43d8-bc5f-db23ec667bd0" />
+
 
 <!--
 **shotgunsinners/shotgunsinners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
