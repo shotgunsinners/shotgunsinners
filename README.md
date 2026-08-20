@@ -1,9 +1,11 @@
-<img width="2048" height="331" alt="tumblr_c59a32a59766a2c195e3a38325f94ee3_1503e201_2048" src="https://github.com/user-attachments/assets/20cca7c2-4ad2-4a0c-b423-adc59ff8eedb" />
+<img width="1280" height="102" alt="tumblr_7179acb8ced1cba3dd6f855552846d8f_e916a381_1280" src="https://github.com/user-attachments/assets/ce9f5593-2fc9-41b4-91b8-cfb8c4a8205f" />
+
 
 For more detailed information, check my [Strawpage](https://th3entry86.straw.page/).
 
 More sites can be found on my [guns](https://guns.lol/entry_87).
-<img width="100%" height="50" alt="9fa2a9c9" src="https://github.com/user-attachments/assets/d11ae5ef-5534-438c-894a-f41a3afbda01" />
+<img width="1280" height="102" alt="tumblr_eb21f9c159076067629df8c384bd3c98_0b5a40f4_1280" src="https://github.com/user-attachments/assets/354ce545-ced2-441f-978b-387a93cefd74" />
+
 
 
 
