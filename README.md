@@ -42,7 +42,7 @@
 * $\color{#FFD9D9}{\text{\textbf{Do\ not\ copy\ or\ heavily\ inspire\ your\ skins\ from\ mine.}}}$
 * $\color{#FFF0F0}{\text{Minor\ inspiration\ is\ perfectly\ fine,\ but\ please\ do\ not\ fully\ clone\ my\ skins!}}$
 
-# <p align="center">$\color{#A02020}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#5A0000}{\text{──\ ❖\ ───}}$</p>
+# $\color{#5A0000}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#A10000}{\text{──\ ❖\ ───}}$
 
 
 ### $\color{#5A0000}{\text{W}}\color{#6E0000}{\text{h}}\color{#830000}{\text{e}}\color{#970000}{\text{r}}\color{#AC0000}{\text{e}}\color{#C10000}{\text{\ }}\color{#D50000}{\text{t}}\color{#EA0000}{\text{o}}\color{#FF0000}{\text{\ }}\color{#FF3333}{\text{F}}\color{#FF6666}{\text{i}}\color{#FF9999}{\text{n}}\color{#FFCCCC}{\text{d}}\color{#FFE600}{\text{\ }}\color{#FFFFFF}{\text{M}}\color{#FFFFFF}{\text{e}}$
@@ -50,7 +50,8 @@
 * $\color{#F8F8F8}{\text{\textbf{18+\ Server:\ Usually\ seen\ hanging\ out\ around\ or\ above\ the\ docks\ and\ bakery.}}}$
 * $\color{#FFFFFF}{\text{\textbf{Safe\ Server:\ Hanging\ around\ the\ docks,\ bakery,\ or\ the\ Genshin\ Impact\ area.}}}$
 
-# $\color{#5A0000}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#A10000}{\text{──\ ❖\ ───}}$
+# <p align="center">$\color{#A02020}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#5A0000}{\text{──\ ❖\ ───}}$</p>
+
 
 
 <img width="1280" height="102" alt="tumblr_f9110232684d83891c09d479f195fd23_d8743825_1280" src="https://github.com/user-attachments/assets/442fc0d6-fb01-46ee-acc9-09eaf6a1c599" />
