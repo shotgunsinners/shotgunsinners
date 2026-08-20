@@ -21,6 +21,8 @@ DNI
 
 -> I you use slurs or dark humor you have no rights to or cannot reclaim.
 
+->former friends / people I've cut contact with. I don't think this one needs much explaining.
+
 -> Generally just don't be an asshole and we'll be okay.
 <img width="100%" height="50" alt="oil2" src="https://github.com/user-attachments/assets/d40bd851-8f5b-47ea-aef5-8167253323d9" />
 <p align="center">
