@@ -36,7 +36,7 @@
 * $\color{#FFA6A6}{\text{\textbf{I\ hide\ and\ block\ freely\ for\ comfort.\ It\ is\ never\ personal,\ just\ a\ preference.}}}$
 * $\color{#FFBFBF}{\text{\textbf{Often\ AFK\ /\ Off-tab:\ Please\ W2I\ to\ grab\ my\ attention!}}}$
 
-# $\color{#5A0000}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#A10000}{\text{──\ ❖\ ───}}$
+<img width="100%" height="102" alt="tumblr_bea43f267c8a2e906911cad2d5c167be_116dd6db_1280" src="https://github.com/user-attachments/assets/eb840d09-f324-49dd-8fa7-653ab1fcd98b" />
 
 ### $\color{#5A0000}{\text{S}}\color{#6E0000}{\text{k}}\color{#830000}{\text{i}}\color{#970000}{\text{n}}\color{#AC0000}{\text{\ }}\color{#C10000}{\text{B}}\color{#D50000}{\text{o}}\color{#EA0000}{\text{u}}\color{#FF0000}{\text{n}}\color{#FF2626}{\text{d}}\color{#FF4D4D}{\text{a}}\color{#FF7373}{\text{r}}\color{#FF9999}{\text{i}}\color{#FFBFBF}{\text{e}}\color{#FFD9D9}{\text{s}}$
 
