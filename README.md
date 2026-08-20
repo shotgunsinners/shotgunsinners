@@ -7,7 +7,8 @@ More sites can be found on my [guns](https://guns.lol/entry_87).
 
 
 
-<span style="color:#8B0000;">## 𝓐𝓭𝓪𝓶/𝓐𝓭𝓼/𝓜𝓮𝓵𝓵𝓸/𝓒𝓲𝓮𝓵...</span>
+$\color{maroon}{\text{𝓐𝓭𝓪𝓶 / 𝓐𝓭𝓼 / 𝓜𝓮𝓵𝓵𝓸 / 𝓒𝓲𝓮𝓵...}}$
+
 
 <img width="100%" height="30" alt="black" src="https://github.com/user-attachments/assets/5e60da25-11f5-46fe-89e5-07acfa040f9d" />
 <img width="100%" height="15" alt="blackstitches" src="https://github.com/user-attachments/assets/b1403e14-ed6d-49fb-b542-b6c7b5170a40" />
