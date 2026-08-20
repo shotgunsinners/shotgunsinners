@@ -4,7 +4,7 @@
 For more detailed information, check my [Strawpage](https://th3entry86.straw.page/).
 
 More sites can be found on my [guns](https://guns.lol/entry_87).
-<img width="1280" height="102" alt="tumblr_eb21f9c159076067629df8c384bd3c98_0b5a40f4_1280" src="https://github.com/user-attachments/assets/354ce545-ced2-441f-978b-387a93cefd74" />
+
 
 
 
@@ -31,7 +31,7 @@ $\color{#5A0000}{\text{-}}\color{#5C0000}{\text{>}}\color{#5E0000}{\text{\ }}\co
 <img width="100%" height="50" alt="oil2" src="https://github.com/user-attachments/assets/d40bd851-8f5b-47ea-aef5-8167253323d9" />
 <p align="center">
   <p align="center">
- <img width="2048" height="331" alt="tumblr_5cf01ac9ad304d3af8fd068053c4cb47_6bad1b10_2048" src="https://github.com/user-attachments/assets/949571ad-155c-43d8-bc5f-db23ec667bd0" />
+<img width="1280" height="102" alt="tumblr_bea43f267c8a2e906911cad2d5c167be_116dd6db_1280" src="https://github.com/user-attachments/assets/7458e131-0588-4e4a-b093-63db1bf213be" />
 
 
 <!--
