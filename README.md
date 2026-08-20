@@ -15,39 +15,40 @@ More sites can be found on my [guns](https://guns.lol/entry_87).
 <img width="100%" height="30" alt="black" src="https://github.com/user-attachments/assets/5e60da25-11f5-46fe-89e5-07acfa040f9d" />
 <img width="100%" height="15" alt="blackstitches" src="https://github.com/user-attachments/assets/b1403e14-ed6d-49fb-b542-b6c7b5170a40" />
 
+
 # ─── ❖ ── ✦ ── ❖ ───
 
 ### $\color{#5A0000}{\text{D}}\color{#710000}{\text{N}}\color{#880000}{\text{I}}\color{#A00000}{\text{\ }}\color{#B70000}{\text{L}}\color{#CE0000}{\text{i}}\color{#E50000}{\text{s}}\color{#FF0000}{\text{t}}\color{#FF3333}{\text{:}}$
 
-* $\color{#5A0000}{\text{->\ If\ you\ can't\ respect\ boundaries,\ or\ stop\ when\ told\ to\ do\ so.\ No\ means\ no\ stop\ it\ you\ freak.}}$
-* $\color{#731414}{\text{->\ If\ you\ romanticize\ or\ glorify\ self\ harm,\ abuse,\ suicide,\ mental\ illness,\ trauma\ etc.\ you\ are\ ICKY.}}$
-* $\color{#8D2929}{\text{->\ If\ you\ are\ racist,\ homophobic,\ transphobic,\ Islamophobic,\ sexist,\ proshipper,\ incest\ shippers,\ or\ support\ any\ of\ these...}}$
-* $\color{#A73D3D}{\text{->\ If\ you\ use\ slurs\ or\ dark\ humor\ you\ have\ no\ rights\ to\ or\ cannot\ reclaim.}}$
-* $\color{#C15252}{\text{->\ Former\ friends\ /\ people\ I've\ cut\ contact\ with.\ I\ don't\ think\ this\ one\ needs\ much\ explaining.}}$
-* $\color{#DB6666}{\text{->\ Generally\ just\ don't\ be\ an\ asshole\ and\ we'll\ be\ okay.}}$
+* $\color{#8B1E1E}{\text{->\ If\ you\ can't\ respect\ boundaries,\ or\ stop\ when\ told\ to\ do\ so.\ No\ means\ no\ stop\ it\ you\ freak.}}$
+* $\color{#A03030}{\text{->\ If\ you\ romanticize\ or\ glorify\ self\ harm,\ abuse,\ suicide,\ mental\ illness,\ trauma\ etc.\ you\ are\ ICKY.}}$
+* $\color{#B64343}{\text{->\ If\ you\ are\ racist,\ homophobic,\ transphobic,\ Islamophobic,\ sexist,\ proshipper,\ incest\ shippers,\ or\ support\ any\ of\ these...}}$
+* $\color{#CB5656}{\text{->\ If\ you\ use\ slurs\ or\ dark\ humor\ you\ have\ no\ rights\ to\ or\ cannot\ reclaim.}}$
+* $\color{#E16969}{\text{->\ Former\ friends\ /\ people\ I've\ cut\ contact\ with.\ I\ don't\ think\ this\ one\ needs\ much\ explaining.}}$
+* $\color{#F77C7C}{\text{->\ Generally\ just\ don't\ be\ an\ asshole\ and\ we'll\ be\ okay.}}$
 
 # ─── ❖ ── ✦ ── ❖ ───
 
-### $\color{#5A0000}{\text{I}}\color{#640303}{\text{n}}\color{#6E0606}{\text{t}}\color{#780909}{\text{e}}\color{#830C0C}{\text{r}}\color{#8D0F0F}{\text{a}}\color{#971313}{\text{c}}\color{#A21616}{\text{t}}\color{#AC1919}{\text{i}}\color{#B61C1C}{\text{o}}\color{#C11F1F}{\text{n}}\color{#CB2323}{\text{\ }}\color{#D52626}{\text{R}}\color{#E02929}{\text{u}}\color{#EA2C2C}{\text{l}}\color{#F42F2F}{\text{e}}\color{#FF3333}{\text{s}}$
+### $\color{#FF3333}{\text{I}}\color{#F53843}{\text{n}}\color{#EB3D54}{\text{t}}\color{#E14265}{\text{e}}\color{#D74776}{\text{r}}\color{#CD4C87}{\text{a}}\color{#C35198}{\text{c}}\color{#B956A9}{\text{t}}\color{#AF5BBA}{\text{i}}\color{#A560CB}{\text{o}}\color{#9B65DC}{\text{n}}\color{#916AED}{\text{\ }}\color{#876FFE}{\text{R}}\color{#7E75FE}{\text{u}}\color{#747AFE}{\text{l}}\color{#6A7FFE}{\text{e}}\color{#6085FF}{\text{s}}$
 
-* $\color{#5A0000}{\text{\textbf{Casual\ C+H\ is\ always\ welcome!\ (Unless\ I'm\ with\ a\ group/friends\ are\ uncomfortable).}}}$
-* $\color{#711E2D}{\text{\textbf{Please\ avoid\ fully\ covering\ my\ pony\ sprite.\ I\ want\ to\ remain\ visible!}}}$
-* $\color{#883C5A}{\text{\textbf{I\ hide\ and\ block\ freely\ for\ comfort.\ It\ is\ never\ personal,\ just\ a\ preference.}}}$
-* $\color{#9F5A87}{\text{\textbf{Often\ AFK\ /\ Off-tab:\ Please\ W2I\ (Whisper\ to\ Interact)\ to\ grab\ my\ attention!}}}$
-
-# ─── ❖ ── ✦ ── ❖ ───
-
-### $\color{#5A0000}{\text{S}}\color{#650303}{\text{k}}\color{#710707}{\text{i}}\color{#7D0A0A}{\text{n}}\color{#890E0E}{\text{\ }}\color{#941212}{\text{B}}\color{#A01515}{\text{o}}\color{#AC1919}{\text{u}}\color{#B81D1D}{\text{n}}\color{#C42020}{\text{d}}\color{#CF2424}{\text{a}}\color{#DB2828}{\text{r}}\color{#E72B2B}{\text{i}}\color{#F32F2F}{\text{e}}\color{#FF3333}{\text{s}}$
-
-* **Do not copy or heavily inspire your skins from mine.**
-* Minor inspiration is perfectly fine, but please do not fully clone my designs!
+* $\color{#D45B7A}{\text{\textbf{Casual\ C+H\ is\ always\ welcome!\ (Unless\ I'm\ with\ a\ group/friends\ are\ uncomfortable).}}}$
+* $\color{#C55B8B}{\text{\textbf{Please\ avoid\ fully\ covering\ my\ pony\ sprite.\ I\ want\ to\ remain\ visible!}}}$
+* $\color{#B65C9C}{\text{\textbf{I\ hide\ and\ block\ freely\ for\ comfort.\ It\ is\ never\ personal,\ just\ a\ preference.}}}$
+* $\color{#A75DAD}{\text{\textbf{Often\ AFK\ /\ Off-tab:\ Please\ W2I\ (Whisper\ to\ Interact)\ to\ grab\ my\ attention!}}}$
 
 # ─── ❖ ── ✦ ── ❖ ───
 
-### $\color{#5A0000}{\text{W}}\color{#650303}{\text{h}}\color{#700606}{\text{e}}\color{#7B0A0A}{\text{r}}\color{#860D0D}{\text{e}}\color{#911111}{\text{\ }}\color{#9C1414}{\text{t}}\color{#A71717}{\text{o}}\color{#B21B1B}{\text{\ }}\color{#BD1E1E}{\text{F}}\color{#C82222}{\text{i}}\color{#D32525}{\text{n}}\color{#DE2828}{\text{d}}\color{#E92C2C}{\text{\ }}\color{#F42F2F}{\text{M}}\color{#FF3333}{\text{e}}$
+### $\color{#6085FF}{\text{S}}\color{#6B81EF}{\text{k}}\color{#767DE0}{\text{i}}\color{#8179D0}{\text{n}}\color{#8C75C1}{\text{\ }}\color{#9771B1}{\text{B}}\color{#A26DA2}{\text{o}}\color{#AD6992}{\text{u}}\color{#B86583}{\text{n}}\color{#C36173}{\text{d}}\color{#CE5D64}{\text{a}}\color{#D95954}{\text{r}}\color{#E45545}{\text{i}}\color{#EF5135}{\text{e}}\color{#FF4D26}{\text{s}}$
 
-* **18+ Server:** Usually seen hanging out around or directly above the docks and bakery.
-* **Safe Server:** Hanging around the docks, bakery, or the Genshin Impact area.
+* $\color{#955DBB}{\text{\textbf{Do\ not\ copy\ or\ heavily\ inspire\ your\ skins\ from\ mine.}}}$
+* $\color{#8B65C4}{\text{Minor\ inspiration\ is\ perfectly\ fine,\ but\ please\ do\ not\ fully\ clone\ my\ designs!}}$
+
+# ─── ❖ ── ✦ ── ❖ ───
+
+### $\color{#FF4D26}{\text{W}}\color{#F35038}{\text{h}}\color{#E7534B}{\text{e}}\color{#DB565E}{\text{r}}\color{#CF5A70}{\text{e}}\color{#C35D83}{\text{\ }}\color{#B76095}{\text{t}}\color{#AB63A8}{\text{o}}\color{#9F66BA}{\text{\ }}\color{#9369CD}{\text{F}}\color{#876CDF}{\text{i}}\color{#7B6FF2}{\text{n}}\color{#6F72FF}{\text{d}}\color{#6375FF}{\text{\ }}\color{#5779FF}{\text{M}}\color{#4C7CFF}{\text{e}}$
+
+* $\color{#7C6ECE}{\text{\textbf{18+\ Server:\ Usually\ seen\ hanging\ out\ around\ or\ directly\ above\ the\ docks\ and\ bakery.}}}$
+* $\color{#7176D9}{\text{\textbf{Safe\ Server:\ Hanging\ around\ the\ docks,\ bakery,\ or\ the\ Genshin\ Impact\ area.}}}$
 
 # ─── ❖ ── ✦ ── ❖ ───
 
