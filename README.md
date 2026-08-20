@@ -1,11 +1,10 @@
-<img width="1280" height="102" alt="tumblr_7179acb8ced1cba3dd6f855552846d8f_e916a381_1280" src="https://github.com/user-attachments/assets/ce9f5593-2fc9-41b4-91b8-cfb8c4a8205f" />
+<img width="100%" height="102" alt="tumblr_7179acb8ced1cba3dd6f855552846d8f_e916a381_1280" src="https://github.com/user-attachments/assets/ce9f5593-2fc9-41b4-91b8-cfb8c4a8205f" />
 
 * $\color{#E05050}{\text{\textbf{For\ more\ detailed\ information,\ check\ my\ }}}$[Strawpage](https://th3entry86.straw.page/)
 * $\color{#A02020}{\text{\textbf{More\ sites\ can\ be\ found\ on\ my\ }}}$[guns](https://guns.lol/entry_87)
 
 
-
-
+<img width="100%" height="40" alt="tumblr_ae239960f6daae72eb9a5f233b4b8904_0d158006_640" src="https://github.com/user-attachments/assets/ba215f82-8295-4fc8-a041-c7b444f5af74" />
 
 
 ## $\color{maroon}{\text{𝓐𝓭𝓪𝓶 / 𝓐𝓭𝓼 / 𝓜𝓮𝓵𝓵𝓸 / 𝓒𝓲𝓮𝓵...}}$
@@ -25,6 +24,8 @@
 * $\color{#CD3C3C}{\text{->\ If\ you\ use\ slurs\ or\ dark\ humor\ you\ have\ no\ rights\ to\ or\ cannot\ reclaim.}}$
 * $\color{#E34646}{\text{->\ Former\ friends\ /\ people\ I've\ cut\ contact\ with.\ I\ don't\ think\ this\ one\ needs\ much\ explaining.}}$
 * $\color{#F95050}{\text{->\ Generally\ just\ don't\ be\ an\ asshole\ and\ we'll\ be\ okay.}}$
+
+
 
 # $\color{#5A0000}{\text{───\ ❖\ ──}}\color{#8B0000}{\text{\ ✦\ }}\color{#A10000}{\text{──\ ❖\ ───}}$
 
@@ -54,5 +55,5 @@
 
 
 
-<img width="1280" height="102" alt="tumblr_f9110232684d83891c09d479f195fd23_d8743825_1280" src="https://github.com/user-attachments/assets/442fc0d6-fb01-46ee-acc9-09eaf6a1c599" />
+<img width="100%" height="102" alt="tumblr_f9110232684d83891c09d479f195fd23_d8743825_1280" src="https://github.com/user-attachments/assets/442fc0d6-fb01-46ee-acc9-09eaf6a1c599" />
 
