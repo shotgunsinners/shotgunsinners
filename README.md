@@ -1,6 +1,6 @@
 <img width="100%" height="102" alt="tumblr_7179acb8ced1cba3dd6f855552846d8f_e916a381_1280" src="https://github.com/user-attachments/assets/ce9f5593-2fc9-41b4-91b8-cfb8c4a8205f" />
 
-* $\color{#E05050}{\text{\textbf{For\ more\ detailed\ information,\ check\ my\ }}}$[Strawpage](https://guns.lol/entry_87)
+* $\color{#E05050}{\text{\textbf{For\ more\ detailed\ information,\ check\ my\ }}}$[guns](https://guns.lol/entry_87) 
 
 
 
