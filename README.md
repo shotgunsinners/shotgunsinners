@@ -1,7 +1,7 @@
 <img width="100%" height="102" alt="tumblr_7179acb8ced1cba3dd6f855552846d8f_e916a381_1280" src="https://github.com/user-attachments/assets/ce9f5593-2fc9-41b4-91b8-cfb8c4a8205f" />
 
-* $\color{#E05050}{\text{\textbf{For\ more\ detailed\ information,\ check\ my\ }}}$[Strawpage](https://th3entry86.straw.page/)
-* $\color{#A02020}{\text{\textbf{More\ sites\ can\ be\ found\ on\ my\ }}}$[guns](https://guns.lol/entry_87)
+* $\color{#E05050}{\text{\textbf{For\ more\ detailed\ information,\ check\ my\ }}}$[Strawpage](https://guns.lol/entry_87))
+
 
 
 <img width="100%" height="40" alt="tumblr_ae239960f6daae72eb9a5f233b4b8904_0d158006_640" src="https://github.com/user-attachments/assets/ba215f82-8295-4fc8-a041-c7b444f5af74" />
