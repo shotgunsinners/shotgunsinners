@@ -2,13 +2,20 @@
 
 ''''''''''''''''''''''''''''''''''''⋆˚꩜｡''''''''''''''''''''''''''''''''''''
 
- HEY, YOU FOUND ME
+ 𝚆𝙴𝙻𝙲𝙾𝙼𝙴
 
 ᯓ★ˎˊ˗ yes, I remade this. again.
 
 ────────── ✶ ──────────
 
 </div>
+
+<p align="center">
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=717171&width=435&center=true&vCenter=true&lines=%F0%9D%93%90%F0%9D%93%AD%F0%9D%93%AA%F0%9D%93%B6+.+.+."
+    alt="Typing SVG" />
+  </a>
+</p>
 
 <table align="center">
   <tr>
