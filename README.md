@@ -8,6 +8,7 @@
 
 ────────── ✶ ──────────
 
+![](https://komarev.com/ghpvc/?username=shotgunsinners&color=lightgrey)
 </div>
 
 <p align="center">
