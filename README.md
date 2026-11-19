@@ -15,28 +15,64 @@
     <td>
       <details>
         <summary>𓏲﹕⸝⸝ ᴀʙᴏᴜᴛ</summary>
-      yeah uhm nothing yetttt...
+     So... how the fuck do I start this. Okay let's go with this, yeah. Hi. I'm Ads, or Adam, but you can call me whatever character I'm currently using. Well, I like making OCs, collecting interests like they're shiny rocks, and spending an unreasonable amount of time figuring out what one bracket does on this thing. Some things I enjoy include Marble Hornets, The Mandela Catalogue, South Park, horror in general, games, and a bunch of other stuff that would take forever to list.
       </details>
     </td>
     <td>
       <details>
         <summary>𓏲﹕⸝⸝ ʙʏɪ</summary>
-       grrrr
+       I can be rude, sarcastic as hell, and an asshole sometimes. Usually joking, but tone can be difficult to read.
+
+I talk A LOT about my hyperfixations, favourite characters, and whatever has currently taken over my brain. You have been warned.
+
+I will casually drop the most random facts or information without warning. There is rarely any context.
+
+I tend to get quiet when I'm uncomfortable or tired. I'll make it clear which one it is, so don't automatically assume something is wrong.
+
+I'm AFK pretty often, and I can be offtab. Whispering is usually the best way to get my attention.
+
+I sometimes fall asleep with Pony Town still open. If I'm standing there doing absolutely nothing, there's a chance I'm literally asleep. I'm not ignoring you, I promise.
       </details>
     </td>
     <td>
       <details>
         <summary>𓏲﹕⸝⸝ ᴅɴɪ</summary>
-       lalalla
+       Homophobes, transphobes, racists, misogynists, and generally problematic people.
+
+Under 16 or over 30.
+
+Proshippers and people who defend or romanticize harmful fictional dynamics.
+
+Former friends / ex-friends. Please don't approach me.
+
+People who deliberately start drama, harass others, or make others uncomfortable.
+
+People who cannot respect boundaries.
+
+Fandoms: I genuinely don't care what fandom you're part of. Like whatever you like, just be normal about it and don't be a creep forcing others into it.
+
+If any of this applies to you, please keep your distance. Thanks.
       </details>
     </td>
-    <td>
+     <td>
       <details>
         <summary>𓏲﹕⸝⸝ ᴍᴏʀᴇ</summary>
-        soon maybe
-      </details>
-    </td>
-   </table>
+<p>
+  <a href="https://guns.lol/entry_87">⁀➴ɢᴜɴꜱ.ʟᴏʟ</a>
+  <br>
+  <sub>guns.lol has everything listed below!</sub>
+</p>
+
+<p>
+  <a href="https://th3entry86.straw.page/">⁀➴ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
+  <br>
+  <a href="https://wild-eyedjokers.atabook.org/">⁀➴ᴀᴛᴀʙᴏᴏᴋ</a>
+  <br>
+  <a href="https://rentry.co/ptquotesorsomeshiy">⁀➴ᴘᴏɴʏ ᴛᴏᴡɴ Qᴜᴏᴛᴇꜱ</a>
+</p>
+      
+  </tr>
+</table>
 <div align="center">
 
 ﹒﹒﹒﹒﹒ 𓏲 ﹒﹒﹒﹒﹒
@@ -49,3 +85,13 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/7a523cc4be8700620a8049e886e2ab11/558814971d3ffd3a-9c/s1280x1920/f7ca59c6bcdf4ca853aa48e9bad54e89907ee3b2.pnj" width="220">
 </p>
+<div align="center">
+
+────────── ✶ ──────────
+
+ this looked better in my head.
+give it three days.
+
+ᯓ★ˎˊ˗ thanks for stopping by.
+
+</div>
