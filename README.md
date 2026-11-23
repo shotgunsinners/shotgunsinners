@@ -27,7 +27,7 @@
     <td>
       <details>
         <summary>𓏲﹕⸝⸝ ᴀʙᴏᴜᴛ</summary>
-     So... how the fuck do I start this. Okay let's go with this, yeah. Hi. I'm Ads, or Adam, but you can call me whatever character I'm currently using. Well, I like making OCs, collecting interests like they're shiny rocks, and spending an unreasonable amount of time figuring out what one bracket does on this thing. Some things I enjoy include Marble Hornets, The Mandela Catalogue, South Park, horror in general, games, and a bunch of other stuff that would take forever to list.
+     So... how the fuck do I start this. Okay let's go with this, yeah. Hi. I'm Ads, or Adam, but you can call me whatever character I'm currently using. Well, I like making OCs, collecting interests like they're shiny rocks, and spending an unreasonable amount of time figuring out what one bracket does on this thing. Some things I enjoy include Marble Hornets, The Mandela Catalogue, South Park, horror in general, games, and a bunch of other stuff that would take forever to list. And I totally don't make themed profiles for each character I love, no,no you got the wrong person. So um yeah I'll link those too soon maybe we'll see idk...if I remember.
       </details>
     </td>
     <td>
