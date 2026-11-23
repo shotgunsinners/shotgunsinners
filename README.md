@@ -2,7 +2,11 @@
 
 ''''''''''''''''''''''''''''''''''''⋆˚꩜｡''''''''''''''''''''''''''''''''''''
 
- 𝚆𝙴𝙻𝙲𝙾𝙼𝙴
+ 
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Metal+Mania&size=45&duration=4000&pause=1000&color=B7B7B7&center=true&vCenter=true&width=435&lines=Welcome" />
+</p>
+
 
 ᯓ★ˎˊ˗ yes, I remade this. again.
 
