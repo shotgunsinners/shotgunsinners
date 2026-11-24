@@ -109,8 +109,7 @@ soon...
 
 ────────── ✶ ──────────
 
- this looked better in my head.
-give it three days.
+ ATP my hobby is making sites and profiles I can't stop.
 
 ᯓ★ˎˊ˗ thanks for stopping by.
 
