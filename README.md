@@ -82,12 +82,7 @@ If any of this applies to you, please keep your distance. Thanks.
   <br>
   <a href="https://rentry.co/ptquotesorsomeshiy">⁀➴ᴘᴏɴʏ ᴛᴏᴡɴ Qᴜᴏᴛᴇꜱ</a>
 </p>
-      
-  </tr>
-</table>
-<div align="center">
 
-﹒﹒﹒﹒﹒ 𓏲 ﹒﹒﹒﹒﹒
   </details>
     </td>
      <td>
@@ -95,6 +90,14 @@ If any of this applies to you, please keep your distance. Thanks.
         <summary>𓏲﹕⸝⸝ᴏᴛʜᴇʀ ᴀᴄᴄᴏᴜɴᴛꜱ
 </summary>
 <p>
+soon...
+      
+  </tr>
+</table>
+<div align="center">
+
+﹒﹒﹒﹒﹒ 𓏲 ﹒﹒﹒﹒﹒
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ttdzb45r62vctnhbne2bkibzeq&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
 </div>
